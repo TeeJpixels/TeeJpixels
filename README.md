@@ -9,4 +9,4 @@ Currently studying Computer Science & Engineering with specialization in Artific
 
 ## Let's Connect
 
-Linkedin: linkedin.com/in/teejakhauri/
+Linkedin: linkedin.com/in/teejakhauri
